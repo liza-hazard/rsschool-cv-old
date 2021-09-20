@@ -1,1 +1,0 @@
-https://liza-hazard.github.io/rsschool-cv/cv
